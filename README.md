@@ -2,5 +2,5 @@
 
 ## Alt Bilgi
 asffffffffffdghdfkdfsşlkg
-dgkjkkkkkkkaliiiiiii
+
 
